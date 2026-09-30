@@ -1,0 +1,1 @@
+To me, ICT means using technology to learn, communicate, and make everyday tasks easier. As a student, it helps me find information, understand new concepts, and share ideas with others. It also gives me useful skills that I can carry into my future career.
